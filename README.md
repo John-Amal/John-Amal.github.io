@@ -1,6 +1,6 @@
 # Amal John
 
-**Research Scientist | Operational Meteorologist | Model Developer**  
+**Applied Scientist | Research Leadership | Model Developer**  
 Zurich, Switzerland  
 📞 +49 172 2573467  
 📧 amaljohn.met@gmail.com  
